@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jamila Ibrahim
 -  💞️ I graduated from British University in Dubai (BUiD)
 - 👀 I’m interested in Artificial Intelligence, computer science, and robotics development.
-- 🌱 I’m currently learning more about Android app development.
+- Interested in opportunities that can change the world and facilitate our lives.
 
 - 📫 How to reach me --> https://www.linkedin.com/in/jamila-ibrahim-aa3649283/
 
